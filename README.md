@@ -4,3 +4,4 @@
 
 - 😄 Pronouns: `She/Her (Kitten, Kitty)`
 - ⚡ Fun fact: `People that think Neko's are furries have a similar brain function that of a single-celled organism`
+  - ⚡⚡ Extra fact: `PJs are just lingerie’s kinkier and more relaxed friend`
